@@ -1,5 +1,5 @@
 -  Hi, I’m @xomabuz
--  I’m interested in programing for project of the school
+-  I’m interested in programing for projects of the school
 -  I’m currently learning html and phayton
 -  Pronouns: muñoz or xoma
 -  I'm a beginner
