@@ -1,2 +1,1 @@
 -  Hi, I’m @xomabuz
--  Im Student of the preparatoria
